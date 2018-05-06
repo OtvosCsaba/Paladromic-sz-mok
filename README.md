@@ -1,0 +1,1 @@
+# Paladromic-sz-mok
